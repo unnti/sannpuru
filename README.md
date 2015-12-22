@@ -1,2 +1,2 @@
 # sannpuru
-aiueo kakikukeko
+aiueo kakikukeko sasisuseso
